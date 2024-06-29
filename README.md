@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning my masters in lj university
 - 💞️ I’m looking to collaborate on ...
 - 📫 my email id is akashprajapati2563@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: i'm district lavel chess champion
 
 <!---
